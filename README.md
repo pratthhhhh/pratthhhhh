@@ -1,5 +1,5 @@
 # About Me:
-Graduate Student<br>Research interests in Deep Learning and Computer Vision<br>Actively Seeking Summer 2025 Internship.
+Graduate Student<br>Research interests in Deep Learning and Computer Vision<br>Actively Seeking Full-time 2026.
 
 
 ## Socials:
